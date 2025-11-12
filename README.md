@@ -1,3 +1,3 @@
 # WANG-
 To exchange programming techniques,and make more friends. 
-！[image test](file:///home/wang-zhichou/%E5%9B%BE%E7%89%87/%E6%88%AA%E5%9B%BE/%E6%88%AA%E5%9B%BE%202025-11-11%2022-12-43.png)
+！[image test](https://github.com/kijhg-alt/WANG-/blob/main/%E6%88%AA%E5%9B%BE%202025-11-11%2022-11-42.png)
