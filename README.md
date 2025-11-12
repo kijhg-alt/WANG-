@@ -1,3 +1,3 @@
 # WANG-
 To exchange programming techniques,and make more friends. 
-！[image test](https://github.com/kijhg-alt/WANG-/blob/main/%E6%88%AA%E5%9B%BE%202025-11-11%2022-11-42.png)
+！[image](https://github.com/kijhg-alt/WANG-/blob/main/%E6%88%AA%E5%9B%BE%202025-11-11%2022-11-42.png)
